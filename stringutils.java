@@ -1,8 +1,10 @@
 this is java class which contains string related function
 
 addde
-master
+mastekkkkkkk
 
+kjdjdhds kdkshkds
+jdsldasjkjkds
 
+sjljdkkljcakljhaklr
 
-ds
